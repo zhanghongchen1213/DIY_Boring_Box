@@ -19,10 +19,10 @@
 
 **视频演示**
 
-[![点击观看视频](https://i.imgs.ovh/2026/02/02/ynbP6Y.md.png)](https://ug.link/nas-zhang-GgrM/filemgr/share-download/?id=e8a7c321addf424d9c1daa1beee3e121)
+[![点击观看视频](https://i.imgs.ovh/2026/02/02/ynbP6Y.md.png)](https://www.bilibili.com/video/BV12n6sBjEcX/)
 
 > 📺 **视频作者**：B站 @鸿尘客
-> 🔗 **视频链接**：[马里奥无聊方块](https://ug.link/nas-zhang-GgrM/filemgr/share-download/?id=e8a7c321addf424d9c1daa1beee3e121)
+> 🔗 **视频链接**：[马里奥无聊方块](https://www.bilibili.com/video/BV12n6sBjEcX/)
 
 ---
 
